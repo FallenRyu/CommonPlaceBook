@@ -1,0 +1,1 @@
+I had realised that I dnot really like company but not the ataul talk as it can somethimes take hours before finishing,
